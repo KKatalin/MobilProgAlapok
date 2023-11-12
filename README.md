@@ -1,1 +1,0 @@
-# Mobil-Programoz-si-Alapok
